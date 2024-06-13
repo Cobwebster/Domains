@@ -1,5 +1,11 @@
 Please contact the email thederpywhale@hotmail.com
 if your interested in buying
 
-suffolkdaily.co.uk 
-battleclans.net
+creativeroleplay.net
+creativerp.net
+derpywhale.com
+idmchub.net
+projectvanilla.net
+suffolkdaily.co.uk
+swiftpenguin.com
+
